@@ -28,7 +28,7 @@
 ## 📫 Let's Connect!
 
 - Email: linggaaditya2806@gmail.com
-- LinkedIn: [linkedin.com/in/linggaaditya](www.linkedin.com/in/lingga-aditya-130493248)
+- LinkedIn: [www.linkedin.com/in/lingga-aditya-130493248]
 
 ---
 
